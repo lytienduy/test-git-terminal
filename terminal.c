@@ -1,3 +1,3 @@
 "# test-git-terminal" 
-duy dep trai vai chuong
+duy dep trai vai
 hehehehe
