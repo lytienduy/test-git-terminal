@@ -1,1 +1,1 @@
-"Nh?t ky ch¡ b‚ nh£t nh t 1" 
+"Nh?t ky chï¿½ bï¿½ nhï¿½t nhï¿½t 1" 
